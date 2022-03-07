@@ -1,0 +1,2 @@
+# -rico-
+Anime E jogos
